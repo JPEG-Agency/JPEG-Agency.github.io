@@ -1,1 +1,1 @@
-# JPEG-Agency.github.io
+# jpegdesign.ru
